@@ -3,5 +3,7 @@
 
 ㅤmostly offtab so w2i preferred
 
+ㅤheavy cudcomf ^_^
+
 ㅤi have severe anxiety due to complex trauma and many things can trigger me. iwc!
 
