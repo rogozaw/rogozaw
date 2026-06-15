@@ -1,1 +1,1 @@
-![Alt Image](685b35804f1e7b66e543b9033c5b6784.gif)
+![Alt Image](dc42eb08307f7bbdedfb5385a594a009.gif)
