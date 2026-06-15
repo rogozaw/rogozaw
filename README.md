@@ -1,3 +1,2 @@
 ## minor, please consider this byi
-![Image Alt](d4b6970b020ddf31fee9824e3c544c64.webp.jpg
-)
+![Image Alt](a40a097cb860dc4ca85b17919a06a7af.webp.jpg)
