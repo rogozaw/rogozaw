@@ -3,4 +3,4 @@
 ㅤ  ㅤ mostly offtabㅤw2i
 ㅤ ㅤ c*h & int freely anytime ^ᆺ^
 
-ㅤ ㅤ no blocked players  ㅤ ㅤi hide whoever i want
+ㅤ ㅤ no blocked players  ㅤ ㅤi dont hide unless you annoy me
