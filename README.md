@@ -4,5 +4,3 @@
 ㅤ ㅤ c*h & int enc anytime ^ᆺ^
 
 ㅤ ㅤ no blocked players  ㅤ ㅤi hide freely
-
-ㅤ ㅤcomplex trauma pretty anything can trigger me iwc
