@@ -2,3 +2,5 @@
  
 ㅤ  ㅤ mostly offtabㅤw2i
 ㅤ ㅤ c*h & int freely anytime ^ᆺ^
+
+ㅤ ㅤcomplex trauma pretty anything can trigger me iwc!
