@@ -3,4 +3,4 @@
 ㅤ  ㅤ $\color{#ccaaff}{\textsf{mostly}}$ $\color{#ccbbff}{\textsf{offtab}}$ㅤ $\color{#ccccff}{\textsf{w2i}}$
 ㅤ ㅤ $\color{#ccddff}{\textsf{c*h +}}$ $\color{#cceeff}{\textsf{int}}$ $\color{#ccffff}{\textsf{freely anytime}}$ ^ᆺ^
 
-ㅤ ㅤ $\color{#ffaaee}{\textsf{no}}$ $\color{#ffbbee}{\textsf{blocked}}$ $\color{#ffccee}{\textsf{players}}$  ㅤ ㅤ $\color{#ffddee}{\textsf{usually}}$ $\color{#ffeeee}{\textsf{i dont}}$ $\color{#ffffee}{\textsf{hide}}$
+ㅤ ㅤ $\color{#ffaaee}{\textsf{no}}$ $\color{#ffbbee}{\textsf{blocked}}$ $\color{#ffccee}{\textsf{players}}$  ㅤ ㅤ $\color{#ffddee}{\textsf{i hide}}$ $\color{#ffeeee}{\textsf{whoever}}$ $\color{#ffffee}{\textsf{i want}}$
