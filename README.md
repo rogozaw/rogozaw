@@ -1,4 +1,4 @@
- ㅤ ㅤ ![Alt Image](fb576cb282da54dd9ded6f5fa19f7533.gif)
+![Alt Image](6341686b4e9762324322b10cd73a0c66.gif)
  
 ㅤ  ㅤ $\large\color{#ccaaff}{\textsf{mostly}}$ $\large\color{#ccbbff}{\textsf{offtab}}$ㅤ $\large\color{#ccccff}{\textsf{w2i}}$
 ㅤ ㅤ $\large\color{#ccddff}{\textsf{c*h +}}$ $\large\color{#cceeff}{\textsf{int}}$ $\large\color{#ccffff}{\textsf{freely anytime}}$ ^ᆺ^
