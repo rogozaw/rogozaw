@@ -2,6 +2,11 @@
 
 
 
+
+
+
+ㅤ
+ㅤ
  
 ㅤ  ㅤ $\large\color{#ccaaff}{\textsf{mostly}}$ $\large\color{#ccbbff}{\textsf{offtab}}$ㅤ $\large\color{#ccccff}{\textsf{w2i}}$
 ㅤ ㅤ $\large\color{#ccddff}{\textsf{c*h +}}$ $\large\color{#cceeff}{\textsf{int}}$ $\large\color{#ccffff}{\textsf{freely anytime}}$ ^ᆺ^
